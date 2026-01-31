@@ -1,5 +1,5 @@
 <div>
-<img src="https://ransha.carrd.co/assets/images/image05.png?v=c7bdb323"width="140px" align="left"> 
+
  ᥫ᭡. <div></div>
   SIGN MY ATA PLEASE ♡ <br> MOSTLY OFFTAB, W2I ♡ C+H <br> DNC MY PONIES
  
