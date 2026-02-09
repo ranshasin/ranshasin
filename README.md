@@ -1,5 +1,5 @@
 <div>
-<img src="https://cdn.discordapp.com/attachments/934421800241209357/1470160580567503092/13472818_3ff19-ezgif.com-speed.gif?ex=698af1fc&is=6989a07c&hm=0ceb49e7d9a1ade19670aa43eea8028d53aca86445e30a5c883c2596407c95ac"><br>
+<img src="https://cdn.discordapp.com/attachments/934421800241209357/1470160580567503092/13472818_3ff19-ezgif.com-speed.gif?ex=698af1fc&is=6989a07c&hm=0ceb49e7d9a1ade19670aa43eea8028d53aca86445e30a5c883c2596407c95ac"width="140px" align="left"> 
  ᥫ᭡. <div></div>
   SIGN MY ATA PLEASE ♡ <br> MOSTLY OFFTAB, W2I ♡ C+H <br> DNC MY PONIES
  
